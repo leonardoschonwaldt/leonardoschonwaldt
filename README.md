@@ -1,1 +1,2 @@
-![hahaha](https://github.com/leonardoschonwaldt/leonardoschonwaldt/assets/113059218/2b9737ff-21ea-460a-be30-4c0cd89d88e3)
+
+![hahah laughing](https://github.com/leonardoschonwaldt/leonardoschonwaldt/assets/113059218/c0157011-7e5f-410d-a5f4-f9df64220b0c)
